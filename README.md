@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @IamNotVerySmart
+- 👀 I’m interested in programming and games
+- 🌱 I’m currently learning how to breath
+- 💞️ I’m looking to collaborate on NO
+- 📫 How to reach me NOPE
